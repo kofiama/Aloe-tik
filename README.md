@@ -1,4 +1,4 @@
 ### My Socials
-###### Discord: keli4069
+###### Discord:
+keli4069
 
-###### Twitter: dripfire7
